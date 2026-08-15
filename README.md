@@ -18,7 +18,3 @@ I am an **Applied Mathematics** honors student at **De Anza College**, aiming to
 
 ### 📫 Let's Connect
 * **Future Internship Opportunities and Projects** Open to Research Experiences for Undergraduates (REUs), Community College Internship (CCI), SLAC, NASA Community College Aerospace Scholars (NCAS), Bay Area Honors Symposium (BAHS), De Anza Capstone Project
-
-* joshua.shuting.yu@gmail.com
-* yujoshua@student.deanza.edu
-* (669)-977-9577
