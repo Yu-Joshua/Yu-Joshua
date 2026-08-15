@@ -4,7 +4,10 @@ I am an **Applied Mathematics** honors student at **De Anza College**, aiming to
 
 ### 🚀 Highlights & Background
 * **Early College Entry:** Graduated homeschool a year early (11th Grade, 2026).
-* **UC Davis COSMOS Alumnus (Summer 2026):** Selected for *Cluster 14: Future Mobility on Ground and Air*, studying Aerospace and Automobile Engineering (Autonomous Vehicles, Drones, Dynamics).
+* **Academics:** High School Unweighted GPA: 4.00
+* **AP Scores:** AP Biology (4); AP Physics 2 (5); AP Chinese (5);
+* **Test Scores:** PSAT: 1420
+* **COSMOS at UC Davis (Summer 2026):** Selected for *Cluster 14: Future Mobility on Ground and Air*, studying Aerospace and Automobile Engineering (Autonomous Vehicles, Drones, Dynamics).
 * **Speech & Debate:** 2x National Qualifier for NITOC in Team-Policy (TP) Debate, Lincoln-Douglas (LD) Debate, and Apologetics via STOA Speech and Debate.
 
 ### 🎓 Academic Goals at De Anza
